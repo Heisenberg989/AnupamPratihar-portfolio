@@ -10,6 +10,4 @@ I will update my skills once they are relevant enough to be showcased.
 2. .............
 3. ................
    
-I have done acouple of CLI apps. I will showcase it soon.
-
 ## Future Plans:  Will earn enough to visit OLD TRAFFORD once in my life.
